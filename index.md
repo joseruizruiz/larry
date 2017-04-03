@@ -1,0 +1,7 @@
+-Larry Plotter y el bucle filosofal
+-Larry Plotter y la clave secreta del wifi
+-Larry Plottter t el prisionero del firewall
+-LarryPlotter y el Malware de fuego
+-Larry Plotter y la orden de unix
+-Larry Plotter y el minsterio del hacker
+-Larry Plotter y los comits de la muerte
